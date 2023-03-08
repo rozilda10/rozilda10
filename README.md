@@ -11,6 +11,7 @@ __Tenho 44 Anos__
 - 😄Pode me chamar por: ela /sua
 - :scream:Esse é o meu **"Primeito Projeto""**
 - **Diversão e brincar com meus filhos sempre!**
+-!(brincar)https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwizAKFkXqsOQwYwWg2_bY_ukcy7nw93pE5Q&usqp=CAU
 :grinning:
 - fazer o que não se sabe não é fácil....Mas estamos aí, quero aprender ,dar o  meu melhor , melhor de mim!
 
