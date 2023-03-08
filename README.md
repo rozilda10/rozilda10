@@ -21,3 +21,4 @@ __Tenho 44 Anos__
 -:kiwi_fruit:Alimentação tem que ser mais saudável!Tenho que me preocupar bastante com a saúde.
 -:cloud_with_lightning_and_rain: o dia parece favorável,porém estamos no verão
 - [filhos](https://www.instagram.com/ruanda.oficial/)
+- Linkedin :https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=rozilda-nascimento-04597324a
