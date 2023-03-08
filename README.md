@@ -5,7 +5,7 @@ __Tenho 44 Anos__
 - 🔭 Atualmente estágio na area de Pedagogia
 - 🌱Estudo Front End no Senai
 - Participo em Bootcamps da Allura e da DIO todos na area de Tecnologia(Front End ;Cyber Segurança,Soft Skills)
-- 👯 Sou voluntária no projeto Reviver desde de 2020(projeto)https://www.instagram.com/projreviver/
+- 👯 Sou voluntária no projeto Reviver desde de 2020[projeto]https://www.instagram.com/projreviver/
 - :woman_feeding_baby: Sou mãe 
 
 - 😄Pode me chamar por: ela /sua
