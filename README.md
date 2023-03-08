@@ -15,7 +15,8 @@ __Tenho 44 Anos__
 :grinning:
 - fazer o que não se sabe não é fácil....Mas estamos aí, quero aprender ,dar o  meu melhor , melhor de mim!
 
-:revolving_hearts:**Amo meus filhos**
+-:revolving_hearts:
+-**Amo meus filhos**
 
 -:kiwi_fruit:Alimentação tem que ser mais saudável!Tenho que me preocupar bastante com a saúde.
 -:cloud_with_lightning_and_rain: o dia parece favorável,porém estamos no verão
