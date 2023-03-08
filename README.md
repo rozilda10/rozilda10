@@ -1,19 +1,19 @@
-### olá eu sou Rozilda Oliveira
+### Olá!!! Eu sou Rozilda Oliveira !
+__Tenho 44 Anos__
 
 
-**rozilda10/rozilda10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 atualmente trabalho na area de Pedagogia
-- 🌱 Estudo Front End no Senai
+- 🔭 Atualmente estágio na area de Pedagogia
+- 🌱Estudo Front End no Senai
 - 👯 Sou voluntária no projeto Reviver desde de 2020
+- :woman_feeding_baby: Sou mãe 
 
--Sou mãe 
-
-- 😄 ela /sua
-- ⚡__ diversão e brincar com meus filhos sempre!__
+- 😄Pode me chamar por: ela /sua
+- :scream:Esse é o meu **"Primeito Projeto""**
+- **Diversão e brincar com meus filhos sempre!**
 :grinning:
-saber fazer o que nao se sabe nao é fácil....
-:revolving_hearts:
-**Amo meus filhos**
+- fazer o que não se sabe não é fácil....Mas estamos aí, quero aprender ,dar o  meu melhor , melhor de mim!
+
+:revolving_hearts:**Amo meus filhos**
+
+-:kiwi_fruit:Alimentação tem que ser mais saudável!Tenhoque me preocupar bastante com a saúde.
+-:cloud_with_lightning_and_rain: o dia parece favorável,porém estamos no verão
