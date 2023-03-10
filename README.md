@@ -14,7 +14,8 @@ __Tenho 44 Anos__
 -!(brincar)https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwizAKFkXqsOQwYwWg2_bY_ukcy7nw93pE5Q&usqp=CAU
 :grinning:
 - fazer o que não se sabe não é fácil....Mas estamos aí, quero aprender ,dar o  meu melhor , melhor de mim!
-
+-Nao é fácil ,existem muitos impedimentos
+- __Mas em tudo Dai Graças!__
 -:revolving_hearts:
 -**Amo meus filhos**
 ##Interagindo  Evoluindo##
