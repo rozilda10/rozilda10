@@ -10,7 +10,7 @@ __Tenho 44 Anos__
 
 - 😄Pode me chamar por: ela /sua
 - :scream:Esse é o meu **"Primeito Projeto""**
-<img align="center" alt="Oliveiraran" height= "300"  src="https://www.infoescola.com/wp-content/uploads/2013/09/oliveira.jpg">
+<img align="center" alt="Oliveiraran" height= "300"  src="https://i.pinimg.com/originals/93/8f/45/938f454e4eece37518f4ffe67cd29bfc.gif"
 - **Diversão e brincar com meus filhos sempre!**
 -!(brincar)https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwizAKFkXqsOQwYwWg2_bY_ukcy7nw93pE5Q&usqp=CAU
 :grinning:
