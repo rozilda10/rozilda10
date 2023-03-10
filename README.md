@@ -38,4 +38,15 @@ __Tenho 44 Anos__
 -:kiwi_fruit:Alimentação tem que ser mais saudável!Tenho que me preocupar bastante com a saúde.
 -:cloud_with_lightning_and_rain: o dia parece favorável,porém estamos no verão ,:heart_eyes:esperemos tudo coopera para o bem! 
 - [filhos](https://www.instagram.com/ruanda.oficial/)
-- Linkedin :https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=rozilda-nascimento-04597324a
+## 
+ 
+ ### **:mag: Meus Contatos
+
+ :**
+ 
+ <div>
+ <a href = "mailto:oliverraizes@gmail.com"><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
+ <a href = "https://www.linkedin.com/in/rozilda-nascimento-04597324a
+original_referer=" target="_blank"><img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"</a>
+ </div>
+  
