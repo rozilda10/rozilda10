@@ -40,9 +40,7 @@ __Tenho 44 Anos__
 - [filhos](https://www.instagram.com/ruanda.oficial/)
 ## 
  
- ### **:mag: Meus Contatos
-
- :**
+ ### **:mag: Meus Contatos:**
  
  <div>
  <a href = "mailto:oliverraizes@gmail.com"><img src="https://img.shields.io/badge/-Gmail-%23333?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
